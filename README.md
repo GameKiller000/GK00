@@ -1,2 +1,2 @@
-# GK00
-The best game developer
+# WD
+The World can change for the better
